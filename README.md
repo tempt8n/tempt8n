@@ -7,5 +7,4 @@ I'll probably mess around here occasionally.
 contact -
 <br>
 discord - tmpt8n
-gmail - tmpt8n@gmail.com
 github - you are here.
