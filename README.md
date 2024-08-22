@@ -4,7 +4,7 @@ I know basic VBS, and a bit of batch and html.
 <br>
 I'll probably mess around here occasionally.
 
-contact - djrattt@gmail.com
+contact - djrattttt@gmail.com (This is for GitHub, will auto fwd to my actual GMail.)
 <br>
 discord - vbemp
 <br>
