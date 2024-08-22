@@ -4,7 +4,8 @@ I know basic VBS, and a bit of batch and html.
 <br>
 I'll probably mess around here occasionally.
 
-contact -
+contact - djrattt@gmail.com
 <br>
-discord - tmpt8n
+discord - vbemp
+<br>
 github - you are here.
